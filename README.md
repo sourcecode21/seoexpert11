@@ -1,4 +1,3 @@
-![image](https://github.com/sourcecode21/seoexpert11/assets/157167025/ff9bdef7-0946-4545-9572-df4d436d102a)<a href="https://softscanmarketing4778.weebly.com/">Links</a>
 <a href="https://softscanmarketing4816.weebly.com/">Links</a>
 <a href="https://softscanmarketing5987.weebly.com/">Links</a>
 <a href="https://softscanmarketing6102.weebly.com/">Links</a>
